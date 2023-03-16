@@ -1,2 +1,4 @@
 # bulanpercayabintang
 matahari
+duudduuud
+#sentolop
